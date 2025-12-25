@@ -108,4 +108,3 @@ We know all too well how hard it can be to motivate yourself into writing, espec
 Our accountability programme is an optional component of the networking events, but one we would strongly encourage everyone in attendance to participate in. Regardless of involvement, our networking events are designed to be social experiences, and that will always remain their most important purpose.
 We hope to diversify the type of networking events that we host beyond pub meetings. These may include, but are not limited to, walks around Edinburgh, team-building activities, group exercises, and trips to the cinema.
 All of our proposed networking events will be advertised on social media in advance of their taking place.
-<img width="451" height="695" alt="image" src="https://github.com/user-attachments/assets/98099bdd-34a2-4bef-bbce-8890c19c6257" />
